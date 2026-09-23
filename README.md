@@ -1,1 +1,0 @@
-# Talleres-y-proyecto-IA
